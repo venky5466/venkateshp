@@ -71,6 +71,6 @@ Experienced Software Engineer with 11+ years of expertise in designing, developi
 
 📧 Email: [pvenky5466@gmail.com](mailto:pvenky5466@gmail.com)
 
-🔗 LinkedIn: linkedin.com/in/venkatesh-p-8807a3208
+🔗 LinkedIn: https://www.linkedin.com/in/your-linkedin-profile
 
 📍 Location: Herndon, Virginia, USA
